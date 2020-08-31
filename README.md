@@ -14,3 +14,6 @@ https://www.youtube.com/watch?v=1S0aBV-Waeo
 
 * Game of Thrones: Hide that Spoiler App | Frustrated Developer</br>
 https://www.youtube.com/watch?v=GzWeRfytGpE
+
+* Cookie Stealing - Computerphile</br>
+https://www.youtube.com/watch?v=T1QEs3mdJoc
